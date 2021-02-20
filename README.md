@@ -1,0 +1,1 @@
+# Basic-Equations-for-Structural-Equation-Modeling
